@@ -1,2 +1,2 @@
-🌟Viliyams
+🌟
 i am web developer with a passion for web design and meme creation. i excels in both creating short, impactful memes and editing them for maximum effect, and has a unique skillset that sets him apart in the industry. Driven by a desire to innovate and push the boundaries of web technology, i am dedicated to making a positive impact. In my free time, I am enjoys exploring new technology and expanding my knowledge of the web.🌀
